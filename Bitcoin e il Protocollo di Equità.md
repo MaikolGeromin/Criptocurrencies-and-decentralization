@@ -34,3 +34,4 @@ I miliardari e le banche a cui stiamo applaudendo perché finalmente stanno acco
 Allora dobbiamo smettere di applaudire. Bitcoin e le criptovalute sono un metodo rivoluzionario per raggiungere equità nella società, un metodo che non ha bisogno di intermediari e che quindi rimuove le conseguenze negative di un terzo soggetto che decide come distribuire la ricchezza.
 
 Ed è questo l’obiettivo: rimpiazzare i vecchi sistemi per raggiungere l’equità con un protocollo nuovo che non ha bisogno di intermediari.
+
